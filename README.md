@@ -1,2 +1,0 @@
-# anipco
-hi mr kamaee
