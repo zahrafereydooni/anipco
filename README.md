@@ -1,2 +1,2 @@
 # anipco
-hi my loard
+hi my lord
